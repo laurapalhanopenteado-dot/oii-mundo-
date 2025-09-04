@@ -5,4 +5,4 @@ gosto muito de esportes, conversar com os amigos e se divertir principalmente ao
 Tenho facilidade em socializar e fazer amigos,
 meu esporte favorito é futebol, 
 sou palmeirense 
-e sou apaixonada por caminhões 
+e sou apaixonada por caminhões.
